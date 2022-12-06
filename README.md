@@ -1,4 +1,4 @@
-- 👋 Hi, I’m AmyClifton@Stormy6969
+- 👋 Hi, I’m Amy @Stormy6969
 - 👀 I’m interested in learning whatever is needed to assure 
 my small business flourishes with as much knowledge,
 from this experience.
